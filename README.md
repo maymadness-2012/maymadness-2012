@@ -14,8 +14,7 @@
 ㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤ $\color{#262c36}\textsf{"}$ $\color{#b65047}\textsf{in}$ $\color{#cae4d4}\textsf{ㅤevery}$ $\color{#3d4552}\textsf{ㅤlovely}$ $\color{#6a373f}\textsf{ㅤthing.}$ $\color{#262c36}\textsf{"}$
+ㅤㅤㅤㅤㅤㅤ $\color{#262c36}\textsf{"}$ $\color{#b65047}\textsf{in}$ $\color{#cae4d4}\textsf{ㅤevery}$ $\color{#3d4552}\textsf{ㅤlovely}$ $\color{#6a373f}\textsf{ㅤthing.}$ $\color{#262c36}\textsf{"}$
 
 ㅤㅤ ㅤ $\color{#6377bf}\textsf{ ݂۫　⑅　}$　 $\color{#cbd381}\textsf{𓈒 ✦　 ˖　}$ $\color{#d3c1cf}\textsf{ ۪‿ 　𓈒ּ֯݁}$
  

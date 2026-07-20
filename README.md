@@ -20,7 +20,7 @@
  
   $\color{#6a373f}\textsf{Exiled}$ㅤ $\color{#3d4552}\textsf{or}$ㅤ $\color{#cae4d4}\textsf{Spoke}$ㅤ $\color{#262c36}\textsf{,}$ㅤ $\color{#b65047}\textsf{6}$ $\color{#3d4552}\textsf{teen}$
  
-ㅤ ㅤ  ㅤ ![](https://komarev.com/ghpvc/?username=yuriletsky&color=6377bf&label=cuties)
+ㅤ ㅤ  ㅤ ![](https://komarev.com/ghpvc/?username=meow&color=b65047&label=cuties)
 
   ㅤㅤㅤㅤㅤ<img src="https://i.ibb.co/VY64tsmG/Untitled922-20260714235815.png" alt="meow" width="11%"/>
   ㅤ

@@ -24,8 +24,8 @@
 ㅤ
 ㅤ
 
-<a href="https://planetlordd.atabook.org" target="_blank">
-   <img src="https://i.ibb.co/7LSwg73/Untitled927-20260714231308.png" alt="meow" width="9%"/>
-</a> ㅤ ㅤ <a href="https://prey.lol/@planetlord" target="_blank">
-   <img src="https://i.ibb.co/twPqvZWY/Untitled927-20260714231306.png" alt="meow" width="9%"/>
+<a href="https://exiled.atabook.org" target="_blank">
+   <img src="https://i.ibb.co/C3kv6gxn/image-2026-07-20-183711041.png" alt="meow" width="9%"/>
+</a> ㅤ ㅤ <a href="https://rentry.co/terranova" target="_blank">
+   <img src="https://i.ibb.co/gZHcK4qV/image-2026-07-20-183820610.png" alt="meow" width="9%"/>
 </a>

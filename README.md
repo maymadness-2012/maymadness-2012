@@ -14,7 +14,7 @@
 ㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤ $\color{#262c36}\textsf{"}$ $\color{#b65047}\textsf{in}$ $\color{#cae4d4}\textsf{ㅤevery}$ $\color{#3d4552}\textsf{ㅤlovely}$ $\color{#6a373f}\textsf{ㅤthing.}$ $\color{#262c36}\textsf{"}$
+ㅤㅤ $\color{#262c36}\textsf{"}$ $\color{#b65047}\textsf{in}$ $\color{#cae4d4}\textsf{ㅤevery}$ $\color{#3d4552}\textsf{ㅤlovely}$ $\color{#6a373f}\textsf{ㅤthing.}$ $\color{#262c36}\textsf{"}$
 
 ㅤㅤ<img src="https://i.ibb.co/7NTWRRwD/image-2026-07-20-182121736.png" alt="meow" width="15%"/>
  

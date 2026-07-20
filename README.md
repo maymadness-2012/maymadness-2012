@@ -16,9 +16,9 @@
 ㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤ $\color{#262c36}\textsf{"}$ $\color{#b65047}\textsf{in}$ $\color{#cae4d4}\textsf{ㅤevery}$ $\color{#3d4552}\textsf{ㅤlovely}$ $\color{#6a373f}\textsf{ㅤthing.}$ $\color{#262c36}\textsf{"}$
 
-ㅤㅤ ㅤ $\color{#6377bf}\textsf{ ݂۫　⑅　}$　 $\color{#cbd381}\textsf{𓈒 ✦　 ˖　}$ $\color{#d3c1cf}\textsf{ ۪‿ 　𓈒ּ֯݁}$
+ㅤㅤ<img src="https://i.ibb.co/7NTWRRwD/image-2026-07-20-182121736.png" alt="meow" width="15%"/>
  
- ㅤ $\color{#6377bf}\textsf{planet}$ㅤ $\color{#2d2a23}\textsf{or}$ㅤ $\color{#d3c1cf}\textsf{mars}$ㅤ $\color{#2d2a23}\textsf{,}$ㅤ $\color{#cbd381}\textsf{5}$ $\color{#6377bf}\textsf{teen}$
+  $\color{#6a373f}\textsf{Exiled}$ㅤ $\color{#3d4552}\textsf{or}$ㅤ $\color{#cae4d4}\textsf{Spoke}$ㅤ $\color{#262c36}\textsf{,}$ㅤ $\color{#b65047}\textsf{6}$ $\color{#3d4552}\textsf{teen}$
  
 ㅤ ㅤ ㅤㅤ![](https://komarev.com/ghpvc/?username=yuriletsky&color=6377bf&label=honeypie)
 

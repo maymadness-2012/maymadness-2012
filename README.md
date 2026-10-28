@@ -1,20 +1,18 @@
 <p align="center"><img width="750" alt="image" src="https://i.ibb.co/v4988S7H/image-2026-10-28-235316653.png" />
 
 <p align="center">$\color{#670816}{\textsf{ 　　16-　Dni　/　Iwec　✙　Basic DNI　　 }}$
-<p align="center">$\color{#7a5d48}{\textsf{ 　globa　✿　open 2 chat!　　﹕　　free 2 friend　　  }}$
-<p align="center">$\color{#c04965}{\textsf{ ♡ }}$
+<p align="center">$\color{#7a5d48}{\textsf{ 　Safe　Server　1　✿　offtab　all　the　time 　}}$ 
+<p align="center">$\color{#4e3e40}{\textsf{ ❤︎ }}$
 
-  <div align="center"
-[straw](https://illrotinthesnow.straw.page) 　ata soon
+  <div align="center">
+
+[strawpage](https://rrocketlauncher.atabook.org/) 　[新book](https://rrocketlauncher.atabook.org/) 　[rentry](https://rentry.co/aboutmave)
 
 </div>
 <p align="center"><img width="750" alt="image" src="https://i.ibb.co/XxXDGR24/image-2026-10-29-000430361.png" />
-<p align="center">$\color{##c04965}{\textsf{ special mentions　　(*´▽`*) }}$
+<p align="center">$\color{#7a5d48}{\textsf{　my friends !!!　(｡｀ ‿ ´ ♡) }}$
 
   <div align="center">
   
-[@veiledanchor](https://github.com/veiledanchor)　　[@sleepytimey](https://github.com/sleepytimey)　　[@WhispyVibez](https://github.com/WhispyVibez)　　[@VilLeynn](https://github.com/VilLeynn)　　[@cometcarnage](https://github.com/cometcarnage)　　[@SUBSP4CE](https://github.com/SUBSP4CE)　
+[my gf ❤︎](https://github.com/Beetlesarecoolerthanme)　[medic](https://github.com/PHlGHTlNG)　[connor](https://github.com/zompyre)　[exor](https://github.com/cindercrests)　[sling](https://github.com/sspacedoutz)　[sage](https://github.com/meetyourdemise)　[red](https://github.com/vixenpilled)　[zack](https://github.com/zackingaround)
 </div>
-<p align="center">$\color{#f8e9d7}{\textsf{ +　 my other oomfs :-) }}$
-
-　

@@ -9,7 +9,7 @@
 [straw](https://illrotinthesnow.straw.page) 　ata soon
 
 </div>
-<p align="center"><img width="750" height="30" alt="image" src="https://file.garden/Z3wkAgI9XxDVyD_q/Untitled1_20260905212954.png" />
+<p align="center"><img width="750" alt="image" src="https://i.ibb.co/XxXDGR24/image-2026-10-29-000430361.png" />
 <p align="center">$\color{##c04965}{\textsf{ special mentions　　(*´▽`*) }}$
 
   <div align="center">
